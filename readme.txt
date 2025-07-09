@@ -1,0 +1,1 @@
+This is Portfolio of Surya teja Periketi his skills showcase and qualifications and how to contact him.
